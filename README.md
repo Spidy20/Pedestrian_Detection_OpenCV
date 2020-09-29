@@ -28,4 +28,4 @@
 
 # [Buy me a Coffee☕](https://www.buymeacoffee.com/spidy20)
 ## [Donate me on PayPal(It will inspire me to do more projects)](https://www.paypal.me/spidy1820)
-## Donate me on GPAY:- kushalbhavsar58-1@okaxis
+## Donate me on GPAY:-kushalbhavsar58@okicici
